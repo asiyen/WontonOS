@@ -1,1 +1,1 @@
-Crappy OS made by a person who eates wonton's when he can.
+Crappy OS made by a person who likes Wontons.
